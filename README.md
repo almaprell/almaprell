@@ -2,7 +2,7 @@
 - 👀 I’m interested in cybersecuirty
 - 🌱 I’m currently learning different cybersecurity projects
 - 💞️ I’m looking to collaborate on peer in cybersecurity
-- 📫 How to reach me veniraucanada@gmail.com
+- 📫 How to reach me veniraucanadamax@gmail.com
 - 😄 Pronouns: Alma
 - ⚡ Fun fact: vibe
 
